@@ -6,8 +6,7 @@
 
 <a href="https://sixmedia.online/en/movie/1196943/chhaava.g.it">➤ ►🌍📺📱👉 Chhaava 𝙵𝚞𝚕𝚕 𝙼𝚘𝚟𝚒𝚎</a>
 
-<a href="https://sixmedia.online/en/movie/1196943/chhaava.g.it" rel="nofollow"><img src=https://image.tmdb.org/t/p/w185/9F4lPRLjfBjsu0zjWNOZQMa8a4V.jpg" alt="" style="max-width: 100%;"></a></p>
-
+<a href="https://sixmedia.online/" rel="nofollow"><img src="https://image.tmdb.org/t/p/w185/9F4lPRLjfBjsu0zjWNOZQMa8a4V.jpg" alt="" style="max-width: 100%;"></a></p>
 Wondering how to Watch Chhaava 𝙾nl𝚒ne? We have all of the details on the Latest English and Hindi Sub Mo𝚟ies, from showtimes to Strea𝚖ing info.
 
 𝘚𝘵𝘪𝘭𝘭 𝘕𝘰𝘸 𝘏𝘦𝘳𝘦 𝘷𝘦𝘳𝘺 𝘨𝘰𝘰𝘥 𝘰𝘱𝘵𝘪𝘰𝘯 𝘧𝘰𝘳 𝘍𝘳𝘦𝘦 𝘋𝘰𝘸𝘯𝘭𝘰𝘢𝘥𝘪𝘯𝘨 𝘰𝘳 𝘞𝘢𝘵𝘤𝘩𝘪𝘯𝘨 𝘰𝘳 𝘚𝘵𝘳𝘦𝘢𝘮𝘪𝘯𝘨 𝘵𝘩𝘦 Chhaava 𝘍𝘶𝘭𝘭 𝘔𝘰𝘷𝘪𝘦 𝘖𝘯𝘭𝘪𝘯𝘦 𝘧𝘰𝘳 𝘍𝘳𝘦𝘦 𝘪𝘯 𝘰𝘯 𝘍𝘪𝘭𝘮𝘺𝘻𝘪𝘭𝘭𝘢, 𝘮𝘰𝘷𝘪𝘦𝘴𝘥𝘢, 123𝘔𝘰𝘷𝘪𝘦𝘴, 𝘮𝘱4𝘮𝘰𝘷𝘪𝘦𝘻, 𝘧𝘪𝘭𝘮𝘺𝘸𝘢𝘱, kutty𝘮𝘰𝘷𝘪𝘦𝘴 & 𝘙𝘦𝘥𝘥𝘐𝘵, 𝘍𝘪𝘭𝘔𝘺𝘻𝘪𝘭𝘭𝘢, Vega𝘮𝘰𝘷𝘪𝘦𝘴 𝘪𝘯𝘤𝘭𝘶𝘥𝘪𝘯𝘨. 𝘞𝘩𝘦𝘳𝘦 𝘵𝘰 𝘞𝘢𝘵𝘤𝘩 Chhaava 𝘭𝘢𝘵𝘦𝘴𝘵 𝘴𝘶𝘱𝘦𝘳𝘯𝘢𝘵𝘶𝘳𝘢𝘭 𝘈 𝘵𝘳𝘪𝘣𝘢𝘭 𝘸𝘢𝘳𝘳𝘪𝘰𝘳'𝘴 𝘧𝘪𝘦𝘳𝘤𝘦 𝘴𝘵𝘳𝘶𝘨𝘨𝘭𝘦 𝘵𝘰 𝘴𝘢𝘷𝘦 𝘩𝘪𝘴 𝘱𝘦𝘰𝘱𝘭𝘦 𝘢 𝘮𝘪𝘭𝘭𝘦𝘯𝘯𝘪𝘶𝘮 𝘢𝘨𝘰 𝘪𝘴 𝘮𝘺𝘴𝘵𝘦𝘳𝘪𝘰𝘶𝘴𝘭𝘺 𝘭𝘪𝘯𝘬𝘦𝘥 𝘵𝘰 𝘢 𝘴𝘩𝘢𝘥𝘰𝘸 𝘤𝘰𝘱'𝘴 𝘱𝘦𝘳𝘪𝘭𝘰𝘶𝘴 𝘲𝘶𝘦𝘴𝘵 𝘪𝘯 𝘵𝘩𝘦 𝘱𝘳𝘦𝘴𝘦𝘯𝘵 𝘔𝘰𝘷𝘪𝘦 Chhaava 𝘢𝘵 𝘩𝘰𝘮𝘦. Chhaava 2𝟶24 𝘢𝘷𝘢𝘪𝘭𝘣𝘭𝘦 𝘰𝘯 𝘢𝘢𝘭 𝘵𝘺𝘱𝘦 𝘰𝘧 𝘱𝘭𝘢𝘵𝘦𝘧𝘰𝘳𝘮 𝘭𝘪𝘬𝘦 𝘵𝘰 𝘚𝘵𝘳𝘦𝘢𝘔 𝘰𝘯 𝘗𝘦𝘢𝘤𝘰𝘤𝘬, 𝘏𝘉𝘖 𝘔𝘢𝘹, 𝘕𝘦𝘵𝘧𝘭𝘪𝘹 𝘰𝘳 𝘋𝘪𝘴𝘯𝘦𝘺 𝘗𝘭𝘶𝘴? 𝘠𝘦𝘴 𝘸𝘦 𝘩𝘢𝘷𝘦 𝘧𝘰𝘶𝘯𝘥 𝘳𝘦𝘢𝘭 𝘢𝘯𝘥 𝘨𝘦𝘯𝘶𝘢𝘭 𝘴𝘵𝘳𝘦𝘮𝘢𝘪𝘯𝘨 𝘱𝘭𝘢𝘵𝘦𝘧𝘰𝘳𝘮 𝘸𝘩𝘦𝘳𝘦 𝘺𝘰𝘶 𝘤𝘢𝘯 𝘸𝘢𝘵𝘤𝘩 𝘢𝘯𝘥 𝘥𝘸𝘯𝘭𝘥 𝘦𝘢𝘴𝘪𝘭𝘺.
